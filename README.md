@@ -1,5 +1,4 @@
-# KN
-🚀 **[BẤM VÀO ĐÂY ĐỂ XEM SLIDE](https://canva.link/en4i9s7yjp4sx8x)**
+# KNA
 <img width="2314" height="1297" alt="image" src="https://github.com/user-attachments/assets/8c883488-d2f6-4fee-b145-03e76c279be1" />
 <img width="2052" height="1157" alt="image" src="https://github.com/user-attachments/assets/3e375497-c8a9-4afc-9939-d90546c6b3f6" />
 <img width="2669" height="1484" alt="image" src="https://github.com/user-attachments/assets/b9d4cdbc-e06e-4ec0-94ce-a0155937f33d" />
