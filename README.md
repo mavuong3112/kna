@@ -1,5 +1,5 @@
 # KN
-🚀 **[👉 BẤM VÀO ĐÂY ĐỂ XEM SLIDE: NEXUS_KNA_UNIHACKFEST.pdf 👈](https://github.com/user-attachments/files/33253979/NEXUS_KNA_UNIHACKFEST.pdf)**🚀
+🚀 **[👉 BẤM VÀO ĐÂY ĐỂ XEM SLIDE: NEXUS_KNA_UNIHACKFEST.pdf 👈](https://github.com/user-attachments/files/33253979/NEXUS_KNA_UNIHACKFEST.pdf)**
 
 Community-owned circular tourism ecosystem for the Ê Đê people of Đắk Lắk, Vietnam.
 BKI 2026 · Team NEXUS.
