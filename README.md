@@ -1,8 +1,5 @@
 # KNĂ
-
-
-
-[Uploading NEXUS_KNA_UNIHACKFEST.pdf…]()
+[NEXUS_KNA_UNIHACKFEST.pdf](https://github.com/user-attachments/files/33253979/NEXUS_KNA_UNIHACKFEST.pdf)
 
 
 Community-owned circular tourism ecosystem for the Ê Đê people of Đắk Lắk, Vietnam.
