@@ -1,5 +1,5 @@
 # KNA
-<img width="2314" height="1297" alt="image" src="https://github.com/user-attachments/assets/8c883488-d2f6-4fee-b145-03e76c279be1" />
+<img width="2322" height="1304" alt="image" src="https://github.com/user-attachments/assets/2de72525-58a5-4958-8310-233e6191ebc4" />
 <img width="2052" height="1157" alt="image" src="https://github.com/user-attachments/assets/3e375497-c8a9-4afc-9939-d90546c6b3f6" />
 <img width="2669" height="1484" alt="image" src="https://github.com/user-attachments/assets/b9d4cdbc-e06e-4ec0-94ce-a0155937f33d" />
 <img width="2313" height="1291" alt="image" src="https://github.com/user-attachments/assets/6e12e200-22d0-47ff-a9bc-01f2b1b4fd7e" />
